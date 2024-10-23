@@ -12,6 +12,7 @@ How to run Join https://t.me/airdrophaxid
 - Auto Claim
 - Auato Farming
 - Play Game
+- Multi Acc
 
 
 
